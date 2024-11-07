@@ -22,8 +22,8 @@ Open-source contributions in the fields of data science, cloud computing, and we
 If you’re working on a project that overlaps with any of these interests, let’s chat!
 
 📫 Reach Me
-LinkedIn: linkedin.com/in/gsprabhashana
-Email: gsprabhashana@example.com
+LinkedIn: linkedin.com/in/gihan-sithum-059553319
+Email: ITBIN-2110-0085@horizoncampus.edu.lk
 Always open to new ideas, discussions, and collaborations! 😊
 😄 Pronouns
 He/Him
